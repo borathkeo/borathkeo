@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @borathkeo
-- 👀 I’m interested in what relate to coding
+- 👀 I’m interested in what's relate to coding
 - 🌱 I’m currently learning coding
 - 💞️ I’m looking to collaborate on who can give me benefit of educatin
 - 📫 How to reach me : Borathpartner@gmail.com
